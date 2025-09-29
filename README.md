@@ -1,6 +1,4 @@
-# Caster: The Astrological RPG Sandbox
-
-**The Ultimate Social Engineering Handbook for Social Rogues and Hackers**
+# Caster: The Ultimate Social Engineering Handbook for Social Rogues and Hackers
 
 ---
 
