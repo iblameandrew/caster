@@ -52,7 +52,7 @@ We're not claiming to predict the future or read minds. Instead, Caster offers a
 
 1.  **Clone the repository:**
     ```bash
-    git clone https://github.com/your-username/caster.git
+    git clone https://github.com/iblameandrew/caster.git
     cd caster
     ```
 
