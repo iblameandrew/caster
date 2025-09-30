@@ -2,7 +2,7 @@
 
 ---
 
-### The only way to undo a monster without becoming it: is by understanding it
+### The only way to undo a monster without becoming it: is by understanding it and tricking it 
 
 ### **A Word from the Creator**
 
@@ -17,7 +17,7 @@ Caster is not your typical personality profiler. It's a sandbox for understandin
 
 The best way to deal with situations, is by being resonant with them: don't oppose them, but let them teach you, so you can eventually ride the beast.
 
-_Inspired in King David's adventures as a rogue, we encourage you yo become sovereign and to not project your own bullshit unto other people: each day is a test, and deciding what to do about the test is about you and you only. **Not about other people** — the safest way of being, is your memory of what you did. No one can ever strip you away from that privilege._
+_Inspired in King David's adventures as a rogue, we encourage you to become sovereign and to not project your own problems unto other people: each day is a test, and deciding what to do about the test is about you and you only — the safest way of being, is your memory of what you did. No one can ever strip you away from that privilege._
 
 
 https://m.youtube.com/watch?v=nBHEX0odIMY&pp=ygUeSG93IHRvIGJlIGEgY29tc2VydmF0aXZlIHJlYmVs
