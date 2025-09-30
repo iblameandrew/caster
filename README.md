@@ -15,7 +15,13 @@
 
 Caster is not your typical personality profiler. It's a sandbox for understanding hypothetical scenarios through the lens of astrology and RPG archetypes. Think of it as a "social engineering" toolkit for the modern-day rogue, hacker, or anyone curious about the hidden patterns in human behavior. Each day or human situation is a monster waiting to be "mastered": people present themselves as challenges, not knowing that the question they want answered about themselves reflected in another person, is deeply idiosincratic _to you_: **can you master me? can you become "me" and ride this wave?** 
 
-_Be sovereign and don't project your own bullshit unto other people: each day is a test, and deciding what to do about it is about you and you only. **Not about other people**._
+The best way to deal with situations, is by being resonant with them: don't oppose them, but let them teach you, so you can eventually ride the beast.
+
+_Inspired in King David's adventures as a rogue, we encourage you yo become sovereign and to not project your own bullshit unto other people: each day is a test, and deciding what to do about the test is about you and you only. **Not about other people** — the safest way of being, is your memory of what you did. No one can ever strip you away from that privilege._
+
+
+https://m.youtube.com/watch?v=nBHEX0odIMY&pp=ygUeSG93IHRvIGJlIGEgY29tc2VydmF0aXZlIHJlYmVs
+
 
 If you are not interested in the people profiling aspect, you can use _caster_ as a means to know what to expect from a day personfied as an archetype: esentially each day has a blueprint. On the basis of astrological belief, if you do not become _one with the day_ you'll be punished for a lack of adaptation. This application is designed for those who believe that unconventional methods can yield unique insights. It's for the creatively-minded, the strategically inclined, and anyone who enjoys exploring the "what ifs" of human interaction.
 
